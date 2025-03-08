@@ -1,6 +1,6 @@
 ## Hi there 👋
 
-[FFScripts.com](#)
+[FFScripts.com](https://ffscripts.com) or [FFScript.com](https://ffscript.com)
 
 **What is FF Script? A Guide to Finding High-Quality Scripts & Digital Tools – Starts from $67**
 
