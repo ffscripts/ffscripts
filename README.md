@@ -1,5 +1,7 @@
 ## Hi there 👋
 
+[FFScripts.com](#)
+
 **What is FF Script? A Guide to Finding High-Quality Scripts & Digital Tools – Starts from $67**
 
 If you're searching for **FF Script**, you’re likely looking for scripts to automate tasks, enhance websites, or develop custom applications. Scripts play a crucial role in web development, business automation, and software solutions. But where can you find the best scripts and tools at affordable prices?
